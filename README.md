@@ -1,6 +1,6 @@
 - 👋 Hi, what's up?
-- 👀 programming, hacking, Martials Arts, horror movie, action movie, classic rock, 42...
-- 💞️ Father, married, Jéssica and Oliver;
+- 👀 programming/engineer software, hacking, Martials Arts, horror movie, action movie, classic rock, 42...
+- 💞️ Married and Father, Jéssica and Ashley;
 - 📫 ss431239@gmail.com
 
 <!---
