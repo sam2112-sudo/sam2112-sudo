@@ -1,5 +1,5 @@
 - 👋 Hi, what's up?
-- 👀 programming/engineer software, hacking, Martials Arts, horror movie, action movie, classic rock, 42...
+- 👀 programming, Martials Arts, horror movie, action movie, classic rock...
 - 💞️ Married and Father, Jéssica and Ashley;
 - 📫 ss431239@gmail.com
 
